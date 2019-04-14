@@ -24,6 +24,8 @@
 * [方軍採訪郝柏村談抗日戰爭](https://www.youtube.com/watch?v=dOYBkPARkQ8), 口述台湾老兵， 2016-10-8
 * 少康戰情室 20141119 [152_1](https://www.youtube.com/watch?v=7dzos8auXWY), [152_2](https://www.youtube.com/watch?v=ML2SELn_rWQ), [152_3](https://www.youtube.com/watch?v=KnICGkGyU24), [152_4](https://www.youtube.com/watch?v=JD3elK7K-z8), TVBS DMDD, 2014-11-19
 * [專訪／郝柏村：打不垮的軍隊 會被罵垮-udn tv](https://www.youtube.com/watch?v=jGn6HYytvP0), UDN TV, 2013-8-9
+* 0513聚焦2.0》郝柏村 郝龍斌 [PART1](https://www.youtube.com/watch?v=aFJmbKIYwnI), [PART2](https://www.youtube.com/watch?v=Z48e3mWPS54), 2017-5-14
+* [四端紅人會 戰爭離合多少故事 前行政院院長 郝柏村(20171209)](https://www.youtube.com/watch?v=2fiSWHWPu7M), 2017-12-09
 
 ## 著作
 * 《無愧》
